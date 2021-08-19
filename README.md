@@ -3,4 +3,5 @@ Je décide de leak la base DreamDeep V1 suite au fondateur Zervec, le tiktokeur 
 
 (Potentiellement une backdoor dans le gcphone et le drugs et tout les autre fichier encryptée)
 
+Si la base n'est plus disponible dm Rorost#0999 sur discord
 Lien de la base: https://gofile.io/d/KzQBI3
